@@ -9,4 +9,5 @@ However, as they say - it's never late to start something new. Here is the journ
 ### https://www.youtube.com/watch?v=y7Ci_H9bYEk&ab_channel=ThinkMedia
 ### https://www.youtube.com/watch?v=ZGIl5lGFBxY&t=403s&ab_channel=CaseyFaris
   1. https://www.blackmagicdesign.com/products/davinciresolve
-## https://www.youtube.com/watch?v=IpATImnGLXQ&ab_channel=PascalBasel (Noisy Environment)
+### https://www.youtube.com/watch?v=IpATImnGLXQ&ab_channel=PascalBasel (Noisy Environment)
+### https://www.youtube.com/watch?v=Z1uWgrwRyqw&ab_channel=BBelle (OBS & Video Editing)
