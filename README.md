@@ -13,3 +13,4 @@ However, as they say - it's never late to start something new. Here is the journ
 ### https://www.youtube.com/watch?v=Z1uWgrwRyqw&ab_channel=BBelle (OBS & Video Editing)
 ####https://www.vegascreativesoftware.com/index.php?id=13915&_oC=purchase&L=52&AffiliateID=145&phash=BBPtCllArZvjlyXI&pk_campaign=Brand_Vegas_Pro_US_(G)&pk_kwd=vegas%20pro&pk_source=googleAds&pk_medium=cpc&pk_content=656338222748&gad=1&gclid=CjwKCAjw36GjBhAkEiwAKwIWyTK1JnJltwgYo3cVVX6_otRwks_G22ddXaAXSgSH2r7OvBEzYnJjcRoCUiYQAvD_BwE
 ### https://www.youtube.com/watch?v=h4yi5g-HBW0&ab_channel=BrentOzarUnlimited
+### https://www.youtube.com/watch?v=Vv1dEae6_0c&ab_channel=Wit%26Wire%7CCourseCreationTips%E2%9C%A8
